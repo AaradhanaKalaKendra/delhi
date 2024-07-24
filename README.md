@@ -4,4 +4,4 @@ Aaradhana Kala Kendra, a premier Dance and Music Academy located in the vibrant 
 
 Visit- https://aaradhanakalakendra.in/
 
-Locayion- 1/16, Jangpura Ext Rd, near DAV SCHOOL, Jangpura, Jungpura Extension, New Delhi, Delhi 110014
+Location- 1/16, Jangpura Ext Rd, near DAV SCHOOL, Jangpura, Jungpura Extension, New Delhi, Delhi 110014
